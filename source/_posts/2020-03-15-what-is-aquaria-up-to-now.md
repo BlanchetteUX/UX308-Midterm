@@ -2,7 +2,7 @@
 layout: blog
 title: What is Aquaria up to now?
 lang: en
-date: '2020-03-15T20:37:05-04:00'
+date: '2020-03-12T20:37:05-04:00'
 thumbnail: /images/uploads/aquarias10.jpg
 terms: >-
   aquaria, giovanni palandrani, rupaul, ru paul, rupauls, rupauls, rupaul's, ru
