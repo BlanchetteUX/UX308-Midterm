@@ -16,6 +16,6 @@ Drag is not only a style of makeup, which is already viewed as an art form, but 
 
 Performance art, from acting, to the more abstract and obscure exhibits seen at the Met, is a very real art form, that takes the utmost skill and dedication.
 
+To add onto the already high level of skill required to be a drag queen, many queens sew their own costumes. That's hard.
 
-
-Combining both make-up skills and performance skills is not an easy task, making drag a truly fierce style of art.
+Combining make-up skills, performance skills, and often sewing skills is not an easy task, making drag a truly fierce style of art.
