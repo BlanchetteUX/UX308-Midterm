@@ -6,7 +6,9 @@ date: '2020-03-05T21:40:35-05:00'
 thumbnail: /images/uploads/rpdrascomingsoon.jpg
 terms: >-
   all stars, all stars 5, rupauls, ru pauls, ru, drag, drag race, ru paul's,
-  rupaul's
+  rupaul's, alexis mateo, blair st. clair, blair saint clair, blair st clair,
+  derrick berry, india ferrah, jujubee, mariah balenciaga, mayhem miller, miz
+  cracker, ongina, shea coulee
 ---
 Season 5 was officially announced back on August 19th, 2019. With the air date only a few months away in June here is a list of the rumored queens, based off their social media history and show dates during the filming dates of all stars. 
 
