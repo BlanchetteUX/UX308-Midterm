@@ -14,9 +14,9 @@ In Drag Race fashion, this season yet again has created moments to go down in Dr
 
 Such as, but limited to:
 
-* Vanjie returns!!!
 * Bottom 6 Lip Sync
 * An atrocious Lip Sync that was not a double elimination
-* A phenomenal Lip Sync that 
+* A phenomenal Lip Sync that had everyone at home gagging
+* Vanjie returns!!!
 
 Tune-In to see the highest caliber of Drag that RuPaul's mainstage has ever seen!
